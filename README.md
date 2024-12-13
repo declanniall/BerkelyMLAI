@@ -1,3 +1,8 @@
+The link to the notebook is
+
+
+
+
 ======================================================================================
 To summarize the findings Of Bar Coupons
 
